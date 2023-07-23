@@ -6,7 +6,7 @@
 
   ## 🎈 Introduce
   </br>
-  ✔ 개발 경력은 차근차근..!!</br>
+  ✔ 개발 경력은 차근차근..!!💪💪</br>
   ✔ 중견기업 경영기획 직무 2년 3개월 경력 </br>
   ✔ 멀티캠퍼스 JAVA 풀스택 KDT 과정 13회차 수료(예정) </br>
   ✨ notion : https://www.notion.so/e0372d8fc7c7456d939bc81a84a7347a 
